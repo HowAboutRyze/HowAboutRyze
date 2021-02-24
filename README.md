@@ -1,6 +1,4 @@
-## Hi there 👋
-
-## 我是 HowAboutRyze 🏡
+## 我是 HowAboutRyze 👋
 
 ## 新年汇总 ✨
 
